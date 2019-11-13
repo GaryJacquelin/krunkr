@@ -1,2 +1,2 @@
 # krunkr
-Louis la reinde des dutes
+Louis la reine des putes
